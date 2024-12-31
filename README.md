@@ -1,0 +1,1 @@
+Logistics Hub is a leading partner in supply chain management and transportation. With a team of experienced professionals, we provide optimized solutions to enhance the efficiency of your business operations. Our mission is to deliver sustainable value and improve operational capacity for our clients.
